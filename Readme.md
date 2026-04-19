@@ -1,1 +1,0 @@
-Wizards Legacy Web
